@@ -5,7 +5,7 @@
 - 📫 You can reach me on jishalenu10@gmail.com...
 - 😄 Pronouns: ...
 - ⚡ Fact: I am interested in all types of art forms and new technologies. I have 4 art records in my name. Love to try new art forms always .
-- Also I love to do animations. You can see some of my art and animation works in www.youtube/@miraclezoneacademy
+- Also I love to do animations. You can see some of my art and animation works in www.youtube.com/@miraclezoneacademy
 
 <!---
 jishalenugeorge/jishalenugeorge is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
